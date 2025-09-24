@@ -1,0 +1,1 @@
+# corretor-de-redacao-r1k
